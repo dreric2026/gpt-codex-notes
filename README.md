@@ -1,4 +1,19 @@
- 2026年6月 GPT Pro / Codex 使用与订阅问题整理
+# 2026年6月最新 ChatGPT Plus / Pro / Codex 充值指南
+
+更新时间：2026年6月
+
+关键词：
+ChatGPT Plus充值
+ChatGPT Pro充值
+Codex充值
+GPT充值
+GPT Plus续费
+GPT Pro续费
+Codex订阅
+
+推荐入口：
+
+https://open.aixufei.com
 
 ## 前言
 
